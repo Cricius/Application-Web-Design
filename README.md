@@ -18,4 +18,4 @@
 
 ¡Me encantaría conectarme contigo! Si tienes alguna pregunta, sugerencia o simplemente deseas charlar sobre videojuegos o desarrollo de software, no dudes en contactarme:
 
-- 📧 **Correo Electrónico:** avelinogcris@egmail.com
+- 📧 **Correo Electrónico:** avelinogcris@gmail.com
